@@ -32,7 +32,7 @@ To combine my banking industry experience with data analytics skills to solve re
 
 ### 🤝 Let's Connect
 
-- LinkedIn: Add your LinkedIn profile URL
+- LinkedIn: - LinkedIn:(https://www.linkedin.com/in/irfanali005/)
 - Location: Karachi, Pakistan
 
 ---
